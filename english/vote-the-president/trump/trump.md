@@ -1,5 +1,7 @@
 You made America great again. Now its time to build a wall. Call 987654321 to contact Bob the builder.
 
+Bob, like all of Trump's underaged slaves, is from China! [Say it with him!](https://www.youtube.com/watch?v=RDrfE9I8_hs)
+
 It's gonna be huuuuge!
 
 Are you ready for [WWIII](./WWIII/WWIII.md)?
